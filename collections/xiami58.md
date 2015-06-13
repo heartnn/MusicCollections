@@ -46,34 +46,34 @@ IIIIIIIIII 本期制作人：口羊 IIIIIIIIII
 
 入选曲目(50)
 
-01. 바나나 파티 -- Yozoh
+01. 바나나 파티 -- Yozoh  
 “Yozoh在这张专辑当中正式公开自己的名字，还邀请了演奏乐队"小洋槐乐队(A Small Group Acacia Band)"一起来参与整张专辑的音乐制作和演奏，也开始展示自己在作词作曲上的天赋。这首香蕉聚会(Banana Party)歌词俏皮，有着Yozoh独特可爱的演唱风格，弘大女神的魅力一览无余。”
 
-02. 옥상달빛 -- 옥상달빛
+02. 옥상달빛 -- 옥상달빛  
 “屋顶月光同名歌曲是她们拿手的哼唱歌曲，让人听来轻松愉悦。”
 
-03. 동거 -- 가을방학
+03. 동거 -- 가을방학  
 “秋天假期一如既往的清新歌曲《同居》”
 
-04. 봄봄봄 -- Lucite Tokki
+04. 봄봄봄 -- Lucite Tokki  
 “Lucite Tokki最新鲜最纯净的音乐《春天 / Spring》”
 
-05. 장가갈 수 있을까 -- 커피소년;내리
+05. 장가갈 수 있을까 -- 커피소년;내리  
 “无法挽留的爱情， 咖啡少年《能够成家吗》？”
 
-06. Windy Spring -- Yeomi
+06. Windy Spring -- Yeomi  
 “轻快明亮的春天味道”
 
-07. Signal Waltz -- Linus' Blanket
+07. Signal Waltz -- Linus' Blanket  
 “微醉着轻轻摇晃，看夏日时光一点点消融，是适合午后来聆听的音乐。”
 
-08. Sugar Sugar -- Ukulele Picnic;IS
+08. Sugar Sugar -- Ukulele Picnic;IS  
 “Ukulele Picnic是韩国第一支Ukulele（尤克里里）乐队，风格十分欢快清晰，给人带来一股夏日的清凉、耳目一新的感觉，就好像来到了夏威夷。”
 
-09. Lalala -- 소규모 아카시아밴드
+09. Lalala -- 소규모 아카시아밴드  
 “小洋槐乐队代表作，音乐风格随心所欲，旋律干净，歌词柔美。”
 
-10. 속좁은 여학생 -- 브로콜리너마저
+10. 속좁은 여학생 -- 브로콜리너마저  
 “broccoliyoutoo 《小心眼的女生》”
 
 11. 사랑한대 -- Standing Egg;Windy
@@ -107,7 +107,7 @@ IIIIIIIIII 本期制作人：口羊 IIIIIIIIII
 20. 그게 사랑 -- 달콤한 소금
 “Sweet Salt 《那段爱情》”
 
-21. 너의 의미 -- IU; 김창완
+21. 너의 의미 -- IU; 김창완  
 “IU & 金昌完特别翻唱老歌《你的意义》，这是随着时间流逝也不会褪色的，淳朴美丽的回忆的痕迹。”
 
 22. Teddy Bear Rises -- Oohyo
