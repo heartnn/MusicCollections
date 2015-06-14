@@ -52,7 +52,7 @@ IIIIIIIIII 本期制作人：口羊 IIIIIIIIII
 02. 옥상달빛 -- 옥상달빛  
 “屋顶月光同名歌曲是她们拿手的哼唱歌曲，让人听来轻松愉悦。”
 
-03. [동거 -- 가을방학](https://dn-songcloud.qbox.me/music/xiami/vol58/03. 同居 - 秋天假期.m4a)  
+03. [동거 -- 가을방학](https://dn-songcloud.qbox.me/music/xiami/vol58/03. 同居 - 秋天假期.flac)  
 “秋天假期一如既往的清新歌曲《同居》”
 
 04. 봄봄봄 -- Lucite Tokki  
