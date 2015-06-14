@@ -67,7 +67,7 @@ IIIIIIIIII 本期制作人：口羊 IIIIIIIIII
 07. Signal Waltz -- Linus' Blanket  
 “微醉着轻轻摇晃，看夏日时光一点点消融，是适合午后来聆听的音乐。”
 
-08. Sugar Sugar -- Ukulele Picnic;IS  
+08. [Sugar Sugar -- Ukulele Picnic;IS](https://dn-songcloud.qbox.me/music/xiami/vol58/08. Sugar Sugar (Feat. IS) - Ukulele Picnic.mp3)  
 “Ukulele Picnic是韩国第一支Ukulele（尤克里里）乐队，风格十分欢快清晰，给人带来一股夏日的清凉、耳目一新的感觉，就好像来到了夏威夷。”
 
 09. Lalala -- 소규모 아카시아밴드  
