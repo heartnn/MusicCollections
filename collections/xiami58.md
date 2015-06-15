@@ -140,7 +140,7 @@ IIIIIIIIII 本期制作人：口羊 IIIIIIIIII
 32. 슈게이저 -- Misty Blue  
 “Misty Blue 《盖伊鞋》”
 
-33. 소풍 -- Ignite;이지선(李智善)  
+33. [소풍 -- Ignite;이지선(李智善)](https://dn-songcloud.qbox.me/music/xiami/vol58/33. 兜风 (Feat. 李智善) - Ignite.mp3)  
 “Ignite & 李智善 《兜风》”
 
 34. 사람이었네 -- Lucid fall  
