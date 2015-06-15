@@ -76,30 +76,30 @@ IIIIIIIIII 本期制作人：口羊 IIIIIIIIII
 10. 속좁은 여학생 -- 브로콜리너마저  
 “broccoliyoutoo 《小心眼的女生》”
 
-11. 사랑한대 -- Standing Egg;Windy
+11. 사랑한대 -- Standing Egg;Windy  
 “Standing Egg （站立蛋）的三围位成员们有着独特的称号 ：1号蛋，2号蛋，3号蛋。
 他们能独自写曲, 填词和制作自己的音乐, 并强调个性,思想, 观念和理念的重要。运用这四种慨念，他们已制作出一个完美的程式，用作一个新鲜和创新的基础曲调。
 这是他们一首非常受欢迎的单曲《One love》”
 
-12. Remember -- The Melody
+12. Remember -- The Melody  
 “《Remember》作为电影《甜蜜阴森的恋人》插曲，节奏欢快，歌声温柔甜美，很容易让人心情愉快。”
 
-13. 첫사랑의 멜로디 -- Acoustic Collabo
+13. 첫사랑의 멜로디 -- Acoustic Collabo  
 “Acoustic Collabo 《初恋的旋律》”
 
-14. Fine Thank You And Y... -- 10cm
+14. Fine Thank You And Y... -- 10cm  
 “10cm温柔的情歌，依然是清新的曲调，有趣的歌词。”
 
-15. Lovin Ice Cream -- As One;Ez-Life
+15. Lovin Ice Cream -- As One;Ez-Life  
 “合声最自然舒服的女子二人组合的As One与 Ez-Life合唱的可爱歌曲《Lovin Ice Cream》也是《对我说谎试试》的插曲。”
 
-16. 손잡고 허밍 (Album ver.) -- 재주소년;Yozoh
+16. 손잡고 허밍 (Album ver.) -- 재주소년;Yozoh  
 “才洲少年 & Yozoh合作电影《长路漫漫》原声 《牵着手哼歌》”
 
-17. 요즘 너 말야 (Album Edit) -- J Rabbit
+17. 요즘 너 말야 (Album Edit) -- J Rabbit  
 “来自两只可爱的小兔子——J Rabbit 《最近的你》”
 
-18. 초콜렛군 오렌지양 -- Milktea
+18. 초콜렛군 오렌지양 -- Milktea  
 “Milktea 《巧克力先生橙子小姐》”
 
 19. Coffee -- 박한별
@@ -114,39 +114,39 @@ IIIIIIIIII 本期制作人：口羊 IIIIIIIIII
 
 23. [Goodmorning Heaven -- Goodmorning Heaven;하림](https://dn-songcloud.qbox.me/music/xiami/vol58/23. Goodmorning Heaven (Feat. 하림) - Goodmorning Heaven.mp3)
 
-24. 토요일 오후에 -- Raspberry Field
+24. 토요일 오후에 -- Raspberry Field  
 “Raspberry Field 《星期六下午》”
 
-25. illa illa -- JUNIEL
+25. illa illa -- JUNIEL  
 “JUNIEL从街头走上主流，从日本唱回韩国的第一张专辑”
 
-26. 있잖아... -- 김여희
+26. 있잖아... -- 김여희  
 “金耀熙 《不是吗...》”
 
 27. Your Sun Is Stupid -- Big Baby Driver
 
-28. 굿모닝 굿나잇 -- M&M
+28. 굿모닝 굿나잇 -- M&M  
 “M&M 《Good Morning Good Night》”
 
-29. 미쳤나봐 -- Soran;권정열 - 10cm
+29. 미쳤나봐 -- Soran;권정열 - 10cm  
 “Soran & 权正烈(10cm) 《要疯了吧》”
 
-30. [200% -- 악동뮤지션](https://dn-songcloud.qbox.me/music/xiami/vol58/30. 200%25 - 乐童音乐家.m4a)
+30. [200% -- 악동뮤지션](https://dn-songcloud.qbox.me/music/xiami/vol58/30. 200%25 - 乐童音乐家.m4a)  
 “从小在大自然长大的乐童音乐家，从选秀节目冠军的身份签约YG后依然保持着他们独特的歌词和清爽的旋律。”
 
-31. 7월의 이파네마소녀 -- Casker
+31. 7월의 이파네마소녀 -- Casker  
 “Casker 《七月的伊帕内玛少女》”
 
-32. 슈게이저 -- Misty Blue
+32. 슈게이저 -- Misty Blue  
 “Misty Blue 《盖伊鞋》”
 
-33. 소풍 -- Ignite;이지선(李智善)
+33. 소풍 -- Ignite;이지선(李智善)  
 “Ignite & 李智善 《兜风》”
 
-34. 사람이었네 -- Lucid fall
+34. 사람이었네 -- Lucid fall  
 “Lucid fall 《人联系到了》”
 
-35. 여름냄새 -- 오후만 있던 일요일
+35. 여름냄새 -- 오후만 있던 일요일  
 “Sunday Afternoon 《夏天的味道》”
 
 36. Galaxy Tourist -- Peppertones
@@ -155,24 +155,24 @@ IIIIIIIIII 本期制作人：口羊 IIIIIIIIII
 
 38. River -- Fanny Fink
 
-39. 청춘 -- Thomas Cook
+39. 청춘 -- Thomas Cook  
 “Thomas Cook 《青春》”
 
-40. 여자친구가 생겼으면 좋겠다 -- 소심한 오빠들;쇼코
+40. 여자친구가 생겼으면 좋겠다 -- 소심한 오빠들;쇼코  
 “小心的哥哥们 《如果有女朋友的话就好了》”
 
 41. 토닥토닥 -- 나겸
 
-42. 완벽한 봄날 -- 동경소녀;소심한 오빠들
+42. 완벽한 봄날 -- 동경소녀;소심한 오빠들  
 “东京少女 & 小心的哥哥们 《完美的春日》”
 
-43. 처음부터 널 -- I:magine
+43. 처음부터 널 -- I:magine  
 “I:magine 《从一开始就对你》”
 
-44. 우리만나요 (샤이니의 월드데이트 삽입... -- 가내수공업
+44. 우리만나요 (샤이니의 월드데이트 삽입... -- 가내수공업  
 “家庭手工业 《我们见面吧》”
 
-45. 우리 처음 만난 날 -- 한희정
+45. 우리 처음 만난 날 -- 한희정  
 “韩熙贞 《我们初次相遇那天》”
 
 46. 별거 아닐거란 생각에 -- 수경
@@ -181,7 +181,7 @@ IIIIIIIIII 本期制作人：口羊 IIIIIIIIII
 
 48. Everything -- 이지형
 
-49. 사랑의 1단계 -- Luanne
+49. 사랑의 1단계 -- Luanne  
 “Luanne 《爱情的第1步》”
 
 50. My Little Cat -- 허민
