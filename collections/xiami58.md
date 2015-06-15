@@ -131,7 +131,7 @@ IIIIIIIIII 本期制作人：口羊 IIIIIIIIII
 29. 미쳤나봐 -- Soran;권정열 - 10cm
 “Soran & 权正烈(10cm) 《要疯了吧》”
 
-30. 200% -- 악동뮤지션
+30. [200% -- 악동뮤지션](https://dn-songcloud.qbox.me/music/xiami/vol58/30. 200%25 - 乐童音乐家.m4a)
 “从小在大自然长大的乐童音乐家，从选秀节目冠军的身份签约YG后依然保持着他们独特的歌词和清爽的旋律。”
 
 31. 7월의 이파네마소녀 -- Casker
